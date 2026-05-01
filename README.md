@@ -17,3 +17,7 @@ ${{\color{#b4e9ff}ＩＮＦＰ-Ｔ}}$
  ${{\color{#c6d1ff}ART}}$  ${{\color{#f8e7ee}MADE}}$  ${{\color{#e699b9}BY}}$ ${{\color{#ff90be}ME}}$ . ໒꒰ྀི ˶• ╸ •˶ ྀི১
 
  <img width="768" height="750" alt="Untitled555_20260501130326" src="https://github.com/user-attachments/assets/87a18060-e154-4e69-8450-2d8c7cbab403" />
+
+  ${{\color{#ff90be}﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏}}$
+
+  # ${{\color{#fda9c0}ＤＮＩ}}$  ${{\color{#b4e9ff}ＬＩＳＴ}}$ . ${{\color{#c6d1ff}໒꒰ྀི -᷅ ⤙ -᷄  ꒱ྀི১}}$
