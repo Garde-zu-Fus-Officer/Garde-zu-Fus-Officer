@@ -12,6 +12,9 @@ _
 
 ${{\color{#f8e7ee}˖ ݁𖥔 ݁˖ 𐙚 ˖ ݁𖥔 ݁˖}}$  ${{\color{#b4e9ff}ＩＮＦＰ-Ｔ}}$ ${{\color{#f8e7ee}˖ ݁𖥔 ݁˖ 𐙚 ˖ ݁𖥔 ݁˖}}$ 
 
+<img width="200" height="202" alt="Untitled554_20260501130242" src="https://github.com/user-attachments/assets/e299bf69-a955-4221-b76f-b9574fb06c0d" />
+
+ 
  ${{\color{#ff90be}﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏}}$
 
  # ${{\color{#c6d1ff}ART}}$  ${{\color{#f8e7ee}MADE}}$  ${{\color{#e699b9}BY}}$ ${{\color{#ff90be}ME}}$ . ໒꒰ྀི ˶• ╸ •˶ ྀི১
